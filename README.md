@@ -1,6 +1,6 @@
 # Interpreter's Drivers and Mapper
 
-###### Interpreter has sold this disgraceful driver to many people, he also gatekeeps this mapper (edited kdmapper). KeStachAttach = sophisticated 😏
+###### Interpreter has sold this disgraceful driver to many people, he also gatekeeps this mapper (edited kdmapper).
 
 <img align="left" alt="FacePalm" width="300px" src="https://media.discordapp.net/attachments/1016601886821978163/1085718149497897000/IMG_0914.png" />
  <-- Constantly on an insane ego trip. 
